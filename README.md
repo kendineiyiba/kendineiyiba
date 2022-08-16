@@ -1,0 +1,7 @@
+-Hosgeldin
+-merhabalar
+-hile 
+-+18 ve ya argo yasaktır
+-config
+-satin alımlar için 
+-
